@@ -39,9 +39,9 @@ Our **premium version** covers:
 ## 🌐 Connect With Us
 
 💬 **Join our Discord community** to share your work, ask questions, and get help:
-[https://discord.gg/YJrnKzwKuD](https://discord.gg/YJrnKzwKuD)
+[EMK server](https://discord.gg/YJrnKzwKuD)
 
-📺 **Watch our YouTube series** for step-by-step guides (link coming soon).
+📺 **Watch our YouTube series** for step-by-step guides [emk channel](https://www.youtube.com/@yutainc-m7f).
 
 ---
 
